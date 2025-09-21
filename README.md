@@ -4,7 +4,7 @@
 <img width="450" height="57" alt="image" src="https://github.com/user-attachments/assets/04f54dbd-493f-4a4d-9126-c200d5e95ea3" />
 
 
-proud dad
+proud dad & husband
 
 
 <a href="http://blinki.es/mom"><img src="http://blinki.es/blinkies/mom/i-love-my-little-girl.gif" alt="Mom blinkies" ></a> <a href="http://blinki.es/mom"><img src="http://blinki.es/blinkies/mom/my-daughter.gif" alt="Mom blinkies" ></a> <a href="http://blinki.es/other"><img src="http://blinki.es/blinkies/other/happy-to-be-me.gif" alt="Other blinkies" ></a> <a href="http://blinki.es/other"><img src="http://blinki.es/blinkies/other/save-the-earth.gif" alt="Other blinkies" ></a> <a href="http://blinki.es/other"><img src="http://blinki.es/blinkies/other/you-are-my-sunshine.gif" alt="Other blinkies" ></a> 
