@@ -5,7 +5,8 @@
 
 
 proud dad & husband
-[click here for rentry url collection](https://rentry.co/orphs)
+
+click [here](https://rentry.co/orphs) for rentry url collection
 
 
 <a href="http://blinki.es/mom"><img src="http://blinki.es/blinkies/mom/i-love-my-little-girl.gif" alt="Mom blinkies" ></a> <a href="http://blinki.es/mom"><img src="http://blinki.es/blinkies/mom/my-daughter.gif" alt="Mom blinkies" ></a> <a href="http://blinki.es/other"><img src="http://blinki.es/blinkies/other/happy-to-be-me.gif" alt="Other blinkies" ></a> <a href="http://blinki.es/other"><img src="http://blinki.es/blinkies/other/save-the-earth.gif" alt="Other blinkies" ></a> <a href="http://blinki.es/other"><img src="http://blinki.es/blinkies/other/you-are-my-sunshine.gif" alt="Other blinkies" ></a> 
